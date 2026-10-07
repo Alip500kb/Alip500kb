@@ -1,4 +1,4 @@
-## hay
+low tier god ratios high tier human
 
 <!--
 **Alip500kb/Alip500kb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
